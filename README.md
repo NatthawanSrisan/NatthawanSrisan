@@ -22,7 +22,6 @@ I also work as a Thai massage therapist — proof that I work with both hands an
 - Full scholarship for PhD  
 - Long-term career in ethical tech
 
----
 
-### Want to collaborate?
+  Want to collaborate?
 Feel free to connect or reach out. I'm always learning and open to challenges!
